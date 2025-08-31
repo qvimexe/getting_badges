@@ -15,6 +15,7 @@ i hate you! i hate they! i hate...
 why&
 i don't remember it
 i want to discuss it with you
+thanks! i'd like to thank you
 why do i hate you?
 safasdff1231232312312331233331231233123123123ывафвафыва12312332111212
 my boss hates your advice!
