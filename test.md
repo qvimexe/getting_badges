@@ -13,6 +13,8 @@ i want to thank you!
 no? no?
 i hate you! i hate they! i hate...
 why&
+i don't remember it
+
 why do i hate you?
 safasdff1231232312312331233331231233123123123ывафвафыва12312332111212
 my boss hates your advice!
