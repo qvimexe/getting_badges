@@ -12,7 +12,7 @@ oh no! jeez! please, don't worry about it
 i want to thank you!
 no? no?
 i hate you! i hate they! i hate...
-why&
+why&1312312
 i don't remember it
 i want to discuss it with you
 thanks! i'd like to thank you
