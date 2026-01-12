@@ -6,8 +6,7 @@ omg
 ,,,,,,mmmmqweqweqwee12312313233sd,,,,,123123123123
 ssss112312312121222123123121221sdfasdfadf12123132123
 3231333312333312333123123123112312312311omgsdfasdfagghhg123
-oh no! jeez! please, don't worry about itsdfsdf123
-i want to thank you!231231123
+123123121i want to thank you!231231123
 no? no?23123132
 i hate you! i hate they! i hate...1231231sdfsdfsfdsf
 why&1312312gssggssdfs123123
