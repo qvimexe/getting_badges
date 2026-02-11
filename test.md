@@ -11,7 +11,7 @@ i hate you! i hate they! i hate...1231231sdfsdfsfdsf12131
 why&1312312gssggssdfs12312312312
 i don't remember it12312312312312312312
 i want to discuss it with you1231231jk123
-thanks! i'd like to thank you
+thanks! i'd like to thank jkhkhk
 why do i hate you123123123
 safasdff1231232312312331233331231233123123123ывафвафыва12312332111212
 my boss hates your advice!gggjhgjhg
